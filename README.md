@@ -15,3 +15,4 @@ i know every one what he make in casablanca and i can influance her with my idea
 i will that my sister convaincre all her friends that she study with her with her idea and she memorise all her matter and she can alwys have a seccus 
 i will to have something special and have a working in web and i will to help my small familly to grow up
 i will try alwys the best plan and i will plan something verry special and i will prouve my self for another 
+i can prouve my self everry day and i should give the help for my small familly i have all the idea of the people in hay farah
