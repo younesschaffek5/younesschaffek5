@@ -17,3 +17,4 @@ i will to have something special and have a working in web and i will to help my
 i will try alwys the best plan and i will plan something verry special and i will prouve my self for another 
 i can prouve my self everry day and i should give the help for my small familly i have all the idea of the people in hay farah
 i know the infomation about all the country and i can be the best forever
+i know that my sister feel every moment she feel all the people in ain sbaa and she had becomed a good results in her study 
