@@ -18,3 +18,4 @@ i will try alwys the best plan and i will plan something verry special and i wil
 i can prouve my self everry day and i should give the help for my small familly i have all the idea of the people in hay farah
 i know the infomation about all the country and i can be the best forever
 i know that my sister feel every moment she feel all the people in ain sbaa and she had becomed a good results in her study 
+i know a lot of all of my sister and i will him to have a good results in her study and i will to see her in university of medicine or ispits and i will him study good and to be brilliant as me in the same time i will to buy for him iphone 13 because is the truth and i had telled for him that all for this moment
