@@ -21,4 +21,4 @@ i know that my sister feel every moment she feel all the people in ain sbaa and 
 i know a lot of all of my sister and i will him to have a good results in her study and i will to see her in university of medicine or ispits and i will him study good and to be brilliant as me in the same time i will to buy for him iphone 13 because is the truth and i had telled for him that all for this moment
 i give for my familly the helping always and i will be in all the picture for the people that's all that's my mind 
 when the people of casablanca see something sensasional i will to know all her life
-i had seen my sister have a good results and study in ispits or university of medicine of the teeth and she can realize verry simply and in the best choises can study in iga
+i had seen my sister have a good results and study in ispits or university of medicine of the teeth and she can realize verry simple
