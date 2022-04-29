@@ -16,4 +16,4 @@ i will that my sister convaincre all her friends that she study with her with he
 i will to have something special and have a working in web and i will to help my small familly to grow up
 i will try alwys the best plan and i will plan something verry special and i will prouve my self for another 
 i can prouve my self everry day and i should give the help for my small familly i have all the idea of the people in hay farah
-i know the infomation about all the country and i can be the best forever 
+i know the infomation about all the country and i can be the best forever
