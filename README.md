@@ -24,5 +24,6 @@ when the people of casablanca see something sensasional i will to know all her l
 i had seen my sister have a good results and study in ispits or university of medicine of the teeth and she can realize verry simple
 i will that my sister feel all the people in casablanca that recognise and i will her to convaincre him with his succes
 i know that my sister had a great thinking
-i hade eat all what i will
-i will compagny everyone in his work and i will know everything of him
+i will to compagny everyone to her work and know of him all and i have more pawer and more energy
+ i will that mother feel all tha people the she recognize in derb milan most of all the buyers of fruits
+ in the case i will to tell you that my sister feel everyone
