@@ -27,3 +27,4 @@ i know that my sister had a great thinking
 i will to compagny everyone to her work and know of him all and i have more pawer and more energy
  i will that mother feel all tha people the she recognize in derb milan most of all the buyers of fruits
  in the case i will to tell you that my sister feel everyone
+i have a lot of important relationship in all the social network and i speak about my future and the future of my familly and i can give for every one the help
