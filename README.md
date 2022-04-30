@@ -28,3 +28,4 @@ i will to compagny everyone to her work and know of him all and i have more pawe
  i will that mother feel all tha people the she recognize in derb milan most of all the buyers of fruits
  in the case i will to tell you that my sister feel everyone
 i have a lot of important relationship in all the social network and i speak about my future and the future of my familly and i can give for every one the help
+my sister remember only her study and she know what she make in her life and she know how she can develop her self alone 
