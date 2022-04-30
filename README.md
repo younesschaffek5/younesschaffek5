@@ -23,3 +23,4 @@ i give for my familly the helping always and i will be in all the picture for th
 when the people of casablanca see something sensasional i will to know all her life
 i had seen my sister have a good results and study in ispits or university of medicine of the teeth and she can realize verry simple
 i will that my sister feel all the people in casablanca that recognise and i will her to convaincre him with his succes
+i know that my sister had a great thinking
