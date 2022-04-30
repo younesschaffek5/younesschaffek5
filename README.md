@@ -25,3 +25,4 @@ i had seen my sister have a good results and study in ispits or university of me
 i will that my sister feel all the people in casablanca that recognise and i will her to convaincre him with his succes
 i know that my sister had a great thinking
 i hade eat all what i will
+i will compagny everyone in his work and i will know everything of him
