@@ -31,6 +31,23 @@ i have a lot of important relationship in all the social network and i speak abo
 my sister remember only her study and she know what she make in her life and she know how she can develop her self alone 
 my mother convaincre all that she is brilliant and she can always be 
 i can negociate with the university in the world 
+i can choise the best girl 
+magnificent
+i choise the friendly people
+fire work
+i am jaelous
+the information
+wedding
+effect
+monster
+i am the first one
+hapiness
+high quality
+jewerlly have i 
+everywhere i can be 
+i am a hero
+funny future
+
 i wish for all my friends of old school that she bring a good aid alfitr 
 i become a lot of surprise
 catalogue
