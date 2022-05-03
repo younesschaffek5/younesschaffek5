@@ -62,3 +62,6 @@ my sister understand all
 i make the good relationship with the perfect person
 i will that my familly have the culture padagodique
 i will that my familly and all the amrican peaople eat not sugar
+i had give the opportunities to study ispits
+i make the magnificent relationship and i forgive all
+
