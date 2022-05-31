@@ -65,3 +65,4 @@ i will that my familly and all the amrican peaople eat not sugar
 i had give the opportunities to study ispits
 i make the magnificent relationship and i forgive all but the people make for me mistake i find the solution verry quickly
 i had finded a work in marocannonce
+i can change the world with my thinking
